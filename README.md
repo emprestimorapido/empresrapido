@@ -1,1 +1,1 @@
-# http://emprestimorapidoindex.html
+# https://emprestimorapido/index.html
